@@ -4,4 +4,4 @@ Experience Best Flashing Software for BTC(Tether) is the ultimate open-source to
 # CONTACT📞
 <a href="https://wa.link/z0mvuj/">•WhatsApp support.</a>
 
-<a href="https://t.me/Thecoinweb/"> •Telegram.</a>
+<a href="https://t.me/Mycoinbaze"> •Telegram.</a>
